@@ -6,7 +6,7 @@ Stay healthy forever so you can do more
 
 Your health is very important, espcially eyes, neck, back, fingers and wrists if you type a lot or frequently. If you are using a computer desktop (with mouse), laptop, tablet or phone for three hours or more every day, repetitive strain injury may affect your fingers, wrists, neck, back, and eyes. Merely a bad posture, if ignored for long, can cause fatigue and pain later.    
 
-Please take a break often, do exercises, stretches (even while in office). This page from [Princeton Univ Health Services](https://uhs.princeton.edu/health-resources/ergonomics-computer-use) can help in simple reflexes, especially watch videos under section Desk Stretching Exercises.    
+Please take a break often from displays, do exercises, stretches (even while in office). This page from [Princeton Univ Health Services](https://uhs.princeton.edu/health-resources/ergonomics-computer-use) can help in simple reflexes, especially watch videos under section Desk Stretching Exercises.    
 
 ---- 
 
