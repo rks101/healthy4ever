@@ -1,10 +1,10 @@
 # healthy4ever
-Stay healthy forever so you can do more
+Stay healthy forever so you can do more. 
 
 
-## Desk stretching execises 
+## Do stretches and execises 
 
-Your health is very important, espcially eyes, neck, back, fingers and wrists if you type a lot or frequently. If you are using a computer desktop (with mouse), laptop, tablet or phone for three hours or more every day, repetitive strain injury may affect your fingers, wrists, neck, back, and eyes. Merely a bad posture, if ignored for long, can cause fatigue and pain later.    
+Your health is very important. Your eyes, neck, back, fingers and wrists need special care if you are in job with repetitive manual or mechanical work frequently. If you are using a computer desktop (with mouse), laptop, tablet or phone for three hours or more every day, repetitive strain injuries may affect your fingers, wrists, neck, back, and eyes. Merely a bad posture, if ignored for long, can cause fatigue, pain and get bad later on.    
 
 Please take a break often from displays, do exercises, stretches (even while in office). This page from [Princeton Univ Health Services](https://uhs.princeton.edu/health-resources/ergonomics-computer-use) can help in simple reflexes, especially watch videos under section Desk Stretching Exercises.    
 
@@ -14,6 +14,8 @@ Please take a break often from displays, do exercises, stretches (even while in 
 
 It is good if you know your body well. You may be living in a perfect healthy body and you may be doing yoga, exercises, walk or running, cycling, swimming, etc. to stay fit. That's good! It is also important to know something about our eyes, neck, back, spine, hands, heart, etc.    
 
+Note:- Do not worry while you read the pages below. Just be aware of something like this exists.    
+
 [What the spine is made up of](https://www.spineuniverse.com/sites/default/files/imagecache/gallery-large/wysiwyg_imageupload/3998/2020/03/03/segments_spine_labeled_shutterstock_534669922.jpg) and [spine anatomy videos](https://www.spine-health.com/video/cervical-muscle-anatomy-animation)    
 
 [Cervical spine (neck)](https://www.spineuniverse.com/anatomy/cervical-spine-anatomy-neck)    
@@ -22,5 +24,8 @@ It is good if you know your body well. You may be living in a perfect healthy bo
 
 [Lumbar (lower back) spine](https://www.spineuniverse.com/anatomy/lumbar-spine)   
 
-Bad posture while computer typing or similar repetitive strain may cause Nerve Compression or Cervical Radiculopathy \cite[CR](https://www.spineuniverse.com/anatomy/cervical-spine-anatomy-neck). Give enough rest to hands, wrists, do reflexes within your personal range.    
+Bad posture while typing or similar repetitive strain **may cause** Nerve Compression or Cervical Radiculopathy \cite[CR](https://www.spineuniverse.com/anatomy/cervical-spine-anatomy-neck) or [Carpal Tunnel Syndrome (CTS)](https://www.ninds.nih.gov/Disorders/Patient-Caregiver-Education/Fact-Sheets/Carpal-Tunnel-Syndrome-Fact-Sheet).    
 
+Give enough rest to hands, wrists, do reflexes within your personal range. When you are sitting in front of your computer desktop/laptop, your eyes should be directed at the top one-third of your computer display. If you have to look up or down, adjust your display/monitor such that you can sit comfortably without straining your neck.     
+
+Get up from the seat often and take enough liquid (water/juices/tea) throughut the day.   
