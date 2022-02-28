@@ -14,10 +14,13 @@ Please take a break often from displays, do exercises, stretches (even while in 
 
 It is good if you know your body well. You may be living in a perfect healthy body and you may be doing yoga, exercises, walk or running, cycling, swimming, etc. to stay fit. That's good! It is also important to know something about our eyes, neck, back, spine, hands, heart, etc.    
 
-[What the spine is made up of](https://www.spineuniverse.com/sites/default/files/imagecache/gallery-large/wysiwyg_imageupload/3998/2020/03/03/segments_spine_labeled_shutterstock_534669922.jpg)   
+[What the spine is made up of](https://www.spineuniverse.com/sites/default/files/imagecache/gallery-large/wysiwyg_imageupload/3998/2020/03/03/segments_spine_labeled_shutterstock_534669922.jpg) and [spine anatomy videos](https://www.spine-health.com/video/cervical-muscle-anatomy-animation)    
 
 [Cervical spine (neck)](https://www.spineuniverse.com/anatomy/cervical-spine-anatomy-neck)    
 
 [Thoracic (mid-back) spine](https://www.spineuniverse.com/anatomy/thoracic-spine)    
 
 [Lumbar (lower back) spine](https://www.spineuniverse.com/anatomy/lumbar-spine)   
+
+Bad posture while computer typing or similar repetitive strain may cause Nerve Compression or Cervical Radiculopathy \cite[CR](https://www.spineuniverse.com/anatomy/cervical-spine-anatomy-neck). Give enough rest to hands, wrists, do reflexes within your personal range.    
+
