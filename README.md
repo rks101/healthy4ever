@@ -14,7 +14,7 @@ Please take a break often from displays, do exercises, stretches (even while in 
 
 It is good if you know your body well. You may be living in a perfect healthy body and you may be doing yoga, exercises, walk or running, cycling, swimming, etc. to stay fit. That's good! It is also important to know something about our eyes, neck, back, spine, hands, heart, etc.    
 
-![What the spine is made up of](https://www.spineuniverse.com/sites/default/files/imagecache/gallery-large/wysiwyg_imageupload/3998/2020/03/03/segments_spine_labeled_shutterstock_534669922.jpg)   
+[What the spine is made up of](https://www.spineuniverse.com/sites/default/files/imagecache/gallery-large/wysiwyg_imageupload/3998/2020/03/03/segments_spine_labeled_shutterstock_534669922.jpg)   
 
 [Cervical spine (neck)](https://www.spineuniverse.com/anatomy/cervical-spine-anatomy-neck)    
 
