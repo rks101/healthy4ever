@@ -7,6 +7,9 @@ Develop a habit to get up early, make it a routine or your own universal law, so
 It may be 4 am for someone, 5 am for others or something like that. It is important to be regular.   
 You can do many things even before many around you are not yet up and still asleep.   
 
+## Walk or run often  
+
+As your body allows (you can train your body), go into habit of going for a long walk or run often. Prefer interval walk and run, if you are just starting. Most important thing: never do too much in a day especially if have not been doing yet. Increase distance gradually over many days and weeks. You can extend a little more on Sunday and holidays. Break from work does not mean break from good habits or exercise.     
 
 ## Do stretches and execises 
 
