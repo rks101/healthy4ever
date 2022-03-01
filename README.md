@@ -23,7 +23,7 @@ Please take a break often from displays, do exercises, stretches (even while in 
 
 It is good if you know your body well. You may be living in a perfect healthy body and you may be doing yoga, exercises, walk or running, cycling, swimming, etc. to stay fit. That's good! It is also important to know something about our eyes, neck, back, spine, hands, heart, etc.    
 
-Note:- Do not worry while you read the pages below. Just be aware of something like this exists.    
+Note:- Do not worry or get stressed while you read the pages below. Just be aware of something like this exists in biology or our human anatomy books.    
 
 [What the spine is made up of](https://www.spineuniverse.com/sites/default/files/imagecache/gallery-large/wysiwyg_imageupload/3998/2020/03/03/segments_spine_labeled_shutterstock_534669922.jpg) and [spine anatomy videos](https://www.spine-health.com/video/cervical-muscle-anatomy-animation)    
 
@@ -38,3 +38,16 @@ Bad posture while typing or similar repetitive strain **may cause** Nerve Compre
 Give enough rest to hands, wrists, do reflexes within your personal range. When you are sitting in front of your computer desktop/laptop, your eyes should be directed at the top one-third of your computer display. If you have to look up or down, adjust your display/monitor such that you can sit comfortably without straining your neck.     
 
 Get up from the seat often and take enough liquid (water/juices/tea) throughut the day.   
+
+## Do something that brings focus 
+
+It may sound strange, yet it is something that many of us are doing knowingly or in sub-consciecous state. It is also a way to "let-it-go". Just do something that brings a focus such that you are doing exactly one thing, keep thoughts enlightening you.    
+
+e.g. some sport activity better playing yourself, swimming, chess, etc.    
+e.g. something like a quick break from routine, cooking a meal or part of it, preparing some soup/tea/coffeee, etc.   
+e.g. writing a book, a poem, a blog, compile text/songs already written, etc.   
+e.g. yoga, meditation, exercise or something closer to that.   
+e.g. music, music, and music in any form.    
+e.g. a type of movie you like, a type of movie you never seen before. Change is always good.    
+
+Do not count mindless scrolling pages while browsing, binging over videos, spending hours on so called "social sites", etc.    
