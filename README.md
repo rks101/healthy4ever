@@ -3,7 +3,9 @@ Stay healthy forever so you can do more.
 
 ## Get up early in the morning 
 
-Develop a habit to get up early, make it a routine or your own universal law, so even on Sundays and holidays. It may be 4 am for someone, 5 am for others or something like that. It is important to be regular. You can do many things even before many around you are not yet up and still asleep.    
+Develop a habit to get up early, make it a routine or your own universal law, so even on Sundays and holidays. It may be 4 am for someone, 5 am for others or something like that. It is important to be regular. You can do many things even before many around you are not yet up and still asleep. Our body gets tired up after work or no-work in the day, it needs repairs, so sleep early and get up early afresh.    
+
+Myth: One need to wake up longer to cover up or students cannot sleep early or others are still awake, none of this has any scientifically proven base or medicinal evidence or proven published work in engineering that may be helping everyone.    
 
 ## Walk or run often  
 
