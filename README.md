@@ -53,3 +53,16 @@ e.g. music, music, and music in any form.
 e.g. a type of movie you like, a type of movie you never seen before. Change is always good.    
 
 Do not count mindless scrolling pages while browsing, binging over videos, spending hours on so called "social sites", etc.    
+
+## Lesser dependency on meds 
+
+One should reduce intake of medicines in a year unless a genetic disorder or a medical condition since birth.    
+
+Any medical practitioner will advise you that almost every medicine has one or more side effects if you ask them for side effects. Even paracetamol or cold or body ache related generic medicines have documented side effects. Do not panic. Just reduce your dependence on medicines by methods that can help.     
+
+Water: nothing tastes like water. Consume enough water every single day.      
+Tea/coffee: love them, have them. Just reduce the size of cuppa :) and daily frequency, avoid a few hours before sleep.     
+Sugar/sweets: you need natural sugar for energy and in moderation. Doctors can help on the quantity and type of intake. You decide for sweets on birthday, festivals, etc., Candy or chocolates can hurt your teeth or no.     
+Fat/oil/ghee: you need natural fats for energy and in moderation. Doctors can help on the quantity and type of intake. You decide for fried and other stuff as you binge on them.    
+
+Now, please do not throw away your meds or tell your parents in their 60s/70s/80s. Take meds when you need them.    
