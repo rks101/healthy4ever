@@ -3,13 +3,13 @@ Stay healthy forever so you can do more.
 
 ## Get up early in the morning 
 
-Develop a habit to get up early, make it a routine or your own universal law, so even on Sunday and holidays.   
+Develop a habit to get up early, make it a routine or your own universal law, so even on Sundays and holidays.   
 It may be 4 am for someone, 5 am for others or something like that. It is important to be regular.   
 You can do many things even before many around you are not yet up and still asleep.   
 
 ## Walk or run often  
 
-As your body allows (you can train your body), go into habit of going for a long walk or run often. Prefer interval walk and run, if you are just starting. Most important thing: never do too much in a day especially if have not been doing yet. Increase distance gradually over many days and weeks. You can extend a little more on Sunday and holidays. Break from work does not mean break from good habits or exercise.     
+As your body allows (you can train your body), go into habit of going for a long walk or run often. Prefer interval walk and run a little, again walk and run a little, if you are just starting. Most important thing: never do too much in a day because it will hurt your muscles and leg piece especially if you have not been doing this for a reasonably long time. Increase the total distance gradually over many days and weeks, same as cycling. You can extend a little more on Sundays and holidays. Break from work does not mean break from good habits or exercise. Avoid highways and very busy roads, and prefer on soil type surface over hard cement/concrete or damaged roads.     
 
 ## Do stretches and execises 
 
