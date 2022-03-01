@@ -9,7 +9,7 @@ You can do many things even before many around you are not yet up and still asle
 
 ## Walk or run often  
 
-As your body allows (you can train your body), go into habit of going for a long walk or run often. Prefer interval walk and run a little, again walk and run a little, if you are just starting. Most important thing: never do too much in a day because it will hurt your muscles and leg piece especially if you have not been doing this for a reasonably long time. Increase the total distance gradually over many days and weeks, same as cycling. You can extend a little more on Sundays and holidays. Break from work does not mean break from good habits or exercise. Avoid highways and very busy roads, and prefer on soil type surface over hard cement/concrete or damaged roads.     
+As your body allows (you can train your body), go into habit of going for a long walk or run often. Prefer interval walk and run a little, again walk and run a little, if you are just starting. Most important thing: never do too much in a day because it will hurt your muscles and leg piece especially if you have not been doing this for a reasonably long time. Increase the total distance gradually over many days and weeks, same as cycling. You can extend a little more on Sundays and holidays. Break from work does not mean break from good habits or exercise. Avoid highways and very busy roads, and prefer on soil type surface over hard cement/concrete or damaged roads. Understand that over-stretching or hurting your body by doing more or extra in a short span of time - cannot yield better results in the long term. Yes, one should push a little in a very gentle way to inprove the endurance and stamina gradually over a period of time.     
 
 ## Do stretches and execises 
 
