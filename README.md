@@ -3,9 +3,7 @@ Stay healthy forever so you can do more.
 
 ## Get up early in the morning 
 
-Develop a habit to get up early, make it a routine or your own universal law, so even on Sundays and holidays.   
-It may be 4 am for someone, 5 am for others or something like that. It is important to be regular.   
-You can do many things even before many around you are not yet up and still asleep.   
+Develop a habit to get up early, make it a routine or your own universal law, so even on Sundays and holidays. It may be 4 am for someone, 5 am for others or something like that. It is important to be regular. You can do many things even before many around you are not yet up and still asleep.    
 
 ## Walk or run often  
 
