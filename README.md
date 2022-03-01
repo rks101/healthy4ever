@@ -3,13 +3,15 @@ Stay healthy forever so you can do more.
 
 ## Get up early in the morning 
 
-Develop a habit to get up early, make it a routine or your own universal law, so even on Sundays and holidays. It may be 4 am for someone, 5 am for others or something like that. It is important to be regular. You can do many things even before many around you are not yet up and still asleep. Our body gets tired up after work or no-work in the day, it needs repairs, so sleep early and get up early afresh.    
+Develop a habit to get up early, make it a routine or your own universal law, so even on Sundays and holidays. It may be 4 am for someone, 5 am for others or something like that. It is important to be regular. You can do many things even before many around you are not yet up and still asleep. Our body gets tired up after work or no-work in the day, it needs repairs, so sleep early and get up early afresh. One can do more with 6-7 hours of sleep in the night and a few breaks in the day, and yet we have a majority of 24 hours left.    
 
-Myth: One need to wake up longer to cover up or students cannot sleep early or others are still awake, none of this has any scientifically proven base or medicinal evidence or proven published work in engineering that may be helping everyone.    
+One need to wake up longer to cover up - a big NO. Students or engineers cannot sleep early or see, others are still awake online so we should work more - none of this has any scientifically proven base or medicinal evidence or proven published work in engineering that may be helping everyone. With regular and steady habits, one can sustain.     
 
 ## Walk or run often  
 
-As your body allows (you can train your body), go into habit of going for a long walk or run often. Prefer interval walk and run a little, again walk and run a little, if you are just starting. Most important thing: never do too much in a day because it will hurt your muscles and leg piece especially if you have not been doing this for a reasonably long time. Increase the total distance gradually over many days and weeks, same as cycling. You can extend a little more on Sundays and holidays. Break from work does not mean break from good habits or exercise. Avoid highways and very busy roads, and prefer on soil type surface over hard cement/concrete or damaged roads. Understand that over-stretching or hurting your body by doing more or extra in a short span of time - cannot yield better results in the long term. Yes, one should push a little in a very gentle way to inprove the endurance and stamina gradually over a period of time.     
+As your body allows (you can train your body), go into habit of going for a long walk or run often. Prefer interval walk and run a little, again walk and run a little, if you are just starting. Most important thing: never do too much in a day because it will hurt your muscles and leg piece especially if you have not been doing this for a reasonably long time. Increase the total distance gradually over many days and weeks, same as cycling. You can extend a little more on Sundays and holidays. Break from work does not mean break from good habits or exercise. Avoid highways and very busy roads, and prefer on soil type surface over hard cement/concrete or damaged roads. 
+
+The more the better - is a big NO here. Understand that over-stretching or hurting your body by doing more or extra in a short span of time - cannot yield better results in the long term. Yes, one should push a little in a very gentle way to improve the endurance and stamina gradually over a period of time.     
 
 ## Do stretches and execises 
 
