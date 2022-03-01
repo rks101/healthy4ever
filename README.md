@@ -7,11 +7,15 @@ Develop a habit to get up early, make it a routine or your own universal law, so
 
 One need to wake up longer to cover up - a big NO. Students or engineers cannot sleep early or see, others are still awake online so we should work more - none of this has any scientifically proven base or medicinal evidence or proven published work in engineering that may be helping everyone. With regular and steady habits, one can sustain.     
 
+----
+
 ## Walk or run often  
 
 As your body allows (you can train your body), go into habit of going for a long walk or run often. Prefer interval walk and run a little, again walk and run a little, if you are just starting. Most important thing: never do too much in a day because it will hurt your muscles and leg piece especially if you have not been doing this for a reasonably long time. Increase the total distance gradually over many days and weeks, same as cycling. You can extend a little more on Sundays and holidays. Break from work does not mean break from good habits or exercise. Avoid highways and very busy roads, and prefer on soil type surface over hard cement/concrete or damaged roads. 
 
 The more the better - is a big NO here. Understand that over-stretching or hurting your body by doing more or extra in a short span of time - cannot yield better results in the long term. Yes, one should push a little in a very gentle way to improve the endurance and stamina gradually over a period of time.     
+
+----
 
 ## Do stretches and execises 
 
@@ -41,6 +45,8 @@ Give enough rest to hands, wrists, do reflexes within your personal range. When 
 
 Get up from the seat often and take enough liquid (water/juices/tea) throughut the day.   
 
+----
+
 ## Do something that brings focus 
 
 It may sound strange, yet it is something that many of us are doing knowingly or in sub-consciecous state. It is also a way to "let-it-go". Just do something that brings a focus such that you are doing exactly one thing, keep thoughts enlightening you.    
@@ -54,6 +60,8 @@ e.g. a type of movie you like, a type of movie you never seen before. Change is 
 
 Do not count mindless scrolling pages while browsing, binging over videos, spending hours on so called "social sites", etc.    
 
+----
+
 ## Lesser dependency on meds 
 
 One should reduce intake of medicines in a year unless a genetic disorder or a medical condition since birth.    
@@ -66,3 +74,5 @@ Sugar/sweets: you need natural sugar for energy and in moderation. Doctors can h
 Fat/oil/ghee: you need natural fats for energy and in moderation. Doctors can help on the quantity and type of intake. You decide for fried and other stuff as you binge on them.    
 
 Now, please do not throw away your meds or tell your parents in their 60s/70s/80s. Take meds when you need them.    
+
+---- 
