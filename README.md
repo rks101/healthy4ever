@@ -35,6 +35,7 @@ Note:- Do not worry or get stressed while you read the pages below. Just be awar
 2. [Cervical spine (neck)](https://www.spineuniverse.com/anatomy/cervical-spine-anatomy-neck)    
 3. [Thoracic (mid-back) spine](https://www.spineuniverse.com/anatomy/thoracic-spine)    
 4. [Lumbar (lower back) spine](https://www.spineuniverse.com/anatomy/lumbar-spine)   
+5. [Human Eye](https://suryaeye.com/know-your-eyes/)   
 
 Bad posture while typing or similar repetitive strain **may cause** Nerve Compression or Cervical Radiculopathy \cite[CR](https://www.spineuniverse.com/anatomy/cervical-spine-anatomy-neck) or [Carpal Tunnel Syndrome (CTS)](https://www.ninds.nih.gov/Disorders/Patient-Caregiver-Education/Fact-Sheets/Carpal-Tunnel-Syndrome-Fact-Sheet).    
 
