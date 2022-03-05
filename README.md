@@ -31,13 +31,10 @@ It is good if you know your body well. You may be living in a perfect healthy bo
 
 Note:- Do not worry or get stressed while you read the pages below. Just be aware of something like this exists in biology or our human anatomy books.    
 
-[What the spine is made up of](https://www.spineuniverse.com/sites/default/files/imagecache/gallery-large/wysiwyg_imageupload/3998/2020/03/03/segments_spine_labeled_shutterstock_534669922.jpg) and [spine anatomy videos](https://www.spine-health.com/video/cervical-muscle-anatomy-animation)    
-
-[Cervical spine (neck)](https://www.spineuniverse.com/anatomy/cervical-spine-anatomy-neck)    
-
-[Thoracic (mid-back) spine](https://www.spineuniverse.com/anatomy/thoracic-spine)    
-
-[Lumbar (lower back) spine](https://www.spineuniverse.com/anatomy/lumbar-spine)   
+1. [What the spine is made up of](https://www.spineuniverse.com/sites/default/files/imagecache/gallery-large/wysiwyg_imageupload/3998/2020/03/03/segments_spine_labeled_shutterstock_534669922.jpg) and [spine anatomy videos](https://www.spine-health.com/video/cervical-muscle-anatomy-animation)    
+2. [Cervical spine (neck)](https://www.spineuniverse.com/anatomy/cervical-spine-anatomy-neck)    
+3. [Thoracic (mid-back) spine](https://www.spineuniverse.com/anatomy/thoracic-spine)    
+4. [Lumbar (lower back) spine](https://www.spineuniverse.com/anatomy/lumbar-spine)   
 
 Bad posture while typing or similar repetitive strain **may cause** Nerve Compression or Cervical Radiculopathy \cite[CR](https://www.spineuniverse.com/anatomy/cervical-spine-anatomy-neck) or [Carpal Tunnel Syndrome (CTS)](https://www.ninds.nih.gov/Disorders/Patient-Caregiver-Education/Fact-Sheets/Carpal-Tunnel-Syndrome-Fact-Sheet).    
 
@@ -51,12 +48,13 @@ Get up from the seat often and take enough liquid (water/juices/tea) throughut t
 
 It may sound strange, yet it is something that many of us are doing knowingly or in sub-consciecous state. It is also a way to "let-it-go". Just do something that brings a focus such that you are doing exactly one thing, keep thoughts enlightening you.    
 
-e.g. some sport activity better playing yourself, swimming, chess, etc.    
-e.g. something like a quick break from routine, cooking a meal or part of it, preparing some soup/tea/coffeee, etc.   
-e.g. writing a book, a poem, a blog, compile text/songs already written, etc.   
-e.g. yoga, meditation, exercise or something closer to that.   
-e.g. music, music, and music in any form.    
-e.g. a type of movie you like, a type of movie you never seen before. Change is always good.    
+e.g. 
+- some sport activity better playing yourself, swimming, chess, etc.    
+- something like a quick break from routine, cooking a meal or part of it, preparing some soup/tea/coffeee, etc.   
+- writing a book, a poem, a blog, compile text/songs already written, etc.   
+- yoga, meditation, exercise or something closer to that.   
+- music, music, and music in any form.    
+- a type of movie you like, a type of movie you never seen before. Change is always good.    
 
 Do not count mindless scrolling pages while browsing, binging over videos, spending hours on so called "social sites", etc.    
 
@@ -68,10 +66,10 @@ One should reduce intake of medicines in a year unless a genetic disorder or a m
 
 Any medical practitioner will advise you that almost every medicine has one or more side effects if you ask them for side effects. Even paracetamol or cold or body ache related generic medicines have documented side effects. Do not panic. Just reduce your dependence on medicines by methods that can help.     
 
-Water: nothing tastes like water. Consume enough water every single day.      
-Tea/coffee: love them, have them. Just reduce the size of cuppa :) and daily frequency, avoid a few hours before sleep.     
-Sugar/sweets: you need natural sugar for energy and in moderation. Doctors can help on the quantity and type of intake. You decide for sweets on birthday, festivals, etc., Candy or chocolates can hurt your teeth or no.     
-Fat/oil/ghee: you need natural fats for energy and in moderation. Doctors can help on the quantity and type of intake. You decide for fried and other stuff as you binge on them.    
+- Water: nothing tastes like water. Consume enough water every single day and stay well hydrated.    
+- Tea/coffee: love them, have them. Just reduce the size of cuppa :) and daily frequency, avoid a few hours before sleep.     
+- Sugar/sweets: you need natural sugar for energy and in moderation. Doctors can help on the quantity and type of intake. You decide for sweets on birthday, festivals, etc., Candy or chocolates can hurt your teeth or no.     
+- Fat/oil/ghee: you need natural fats for energy and in moderation. Doctors can help on the quantity and type of intake. You decide for fried and other stuff as you binge on them.    
 
 Now, please do not throw away your meds or tell your parents in their 60s/70s/80s. Take meds when you need them.    
 
