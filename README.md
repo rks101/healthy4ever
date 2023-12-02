@@ -79,7 +79,7 @@ Now, please do not throw away your meds or tell your parents in their 60s/70s/80
 
 ## Mental well-being   
 
-Mental well-being is important. No one walks to a store or purchases stress online. Do you? Yet many young individuals experience iceburgs hitting their mental-titanic often.     
+Mental well-being is important. We do not realize this until we or someone near us goes through this. No one walks to a store or purchases stress online. Do you? Yet many young individuals experience iceburgs hitting their mental-titanic often. May be because of contraints of given time, space, manpower resources, lack of trust in relationships or in others, not addressing route cause often, trying to keep a tight leash on matters with or without control, insecurities, trauma, etc.      
 
 Stress or anxiety can result from our thoughts, habits, how are we dealing with daily routine, everything that comes our way and our response to it. It is natural to get "dirt" accumulated over a period of time, we need to clean it just like we do our room. Stress can increase with being alone, isolation, or unpleasant commentary, so there is a need to change something in our life.    
 
@@ -87,21 +87,16 @@ First, it's going to be okay.
 
 Second, seek professional help from Clinical Psychologists, well-being experts to work on your health. Make them your friend! Never hasitate to share or seek help. Just do not tell every person you meet in the day because they are not trained to deal with it.      
 
-Third, you are not going to loose anything in your career or life by telling your condition. By hiding and not seeking help may not help you either.     
+Third, you are not going to loose anything in your career or life by telling your condition. By hiding and not seeking help may not help you either. Your own health is more important now than anything you have or do not have.      
 
-Log these and share with your well-being expert when you can:   
+Four, more often log these in a diary or paper and share with your well-being expert whenever you can:   
 
-your sleep timings and quality of sleep,   
-
-your food intake, constipation, stomuch upset, injuries, etc.    
-
-daily activities or routine, physical activity, surroundings,   
-
-how are you feeling and why so,     
-
-recent events or anything that bother you in particular, trauma or unpleasant events in the past,    
-
-what makes you feel happy, what turns you off, what triggers your reaction, etc.     
+- your sleep timings and quality of sleep,
+- your food intake, constipation, stomuch upset, injuries, etc.
+- daily activities or routine, physical activity, surroundings,
+- how are you feeling on some days and time and why it is so,
+- recent events or anything that bother you in particular, trauma or unpleasant events in the past,
+- what makes you feel happy, what turns you off, what triggers your reaction, etc. and why do you feel so.
 
 
 ---- 
