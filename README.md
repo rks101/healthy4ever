@@ -1,9 +1,9 @@
 # healthy4ever
-Stay healthy forever so you can do more. 
+Stay healthy forever so you can do better.  
 
 ## Get up early in the morning 
 
-Develop a habit to get up early, make it a routine or your own universal law, so even on Sundays and holidays. It may be 4 am for someone, 5 am for others or something like that. It is important to be regular. You can do many things even before many around you are not yet up and still asleep. Our body gets tired up after work or no-work in the day, it needs repairs, so sleep early and get up early afresh. One can do more with 6-7 hours of sleep in the night and a few breaks in the day, and yet we have a majority of 24 hours left.    
+Develop a habit to get up early, make it a routine or your own universal law, so even on Sundays and holidays. It may be 4 am for someone, 5 or 6 am for others or something like that. It is important to be regular. You can do many things even before many around you are not yet up and still asleep. Our body gets tired up after work or no-work in the day, it needs repairs, so sleep early and get up early afresh. One can do more with 7-8 hours of sleep in the night and a few breaks in the day, and yet we have a majority of 24 hours left.    
 
 One need to wake up longer to cover up - a big NO. Students or engineers cannot sleep early or see, others are still awake online so we should work more - none of this has any scientifically proven base or medicinal evidence or proven published work in engineering that may be helping everyone. With regular and steady habits, one can sustain.     
 
@@ -64,7 +64,7 @@ Do not count mindless scrolling pages while browsing, binging over videos, spend
 
 ## Lesser dependency on meds 
 
-One should reduce intake of medicines in a year unless a genetic disorder or a medical condition since birth.    
+One should reduce intake of medicines in a year unless a genetic disorder or a medical condition since birth or strongly advised by the Doctors and well-being experts.     
 
 Any medical practitioner will advise you that almost every medicine has one or more side effects if you ask them for side effects. Even paracetamol or cold or body ache related generic medicines have documented side effects. Do not panic. Just reduce your dependence on medicines by methods that can help.     
 
@@ -73,6 +73,35 @@ Any medical practitioner will advise you that almost every medicine has one or m
 - Sugar/sweets: you need natural sugar for energy and in moderation. Doctors can help on the quantity and type of intake. You decide for sweets on birthday, festivals, etc., Candy or chocolates can hurt your teeth or no.     
 - Fat/oil/ghee: you need natural fats for energy and in moderation. Doctors can help on the quantity and type of intake. You decide for fried and other stuff as you binge on them.    
 
-Now, please do not throw away your meds or tell your parents in their 60s/70s/80s. Take meds when you need them.    
+Now, please do not throw away your meds or tell your parents in their 60s/70s/80s. Take meds when you need them as prescribed by the Doctors and well-being experts.    
+
+---- 
+
+## Mental well-being   
+
+Mental well-being is important. No one walks to a store or purchases stress online. Do you? Yet many young individuals experience iceburgs hitting their mental-titanic often.     
+
+Stress or anxiety can result from our thoughts, habits, how are we dealing with daily routine, everything that comes our way and our response to it. It is natural to get "dirt" accumulated over a period of time, we need to clean it just like we do our room. Stress can increase with being alone, isolation, or unpleasant commentary, so there is a need to change something in our life.    
+
+First, it's going to be okay.    
+
+Second, seek professional help from Clinical Psychologists, well-being experts to work on your health. Make them your friend! Never hasitate to share or seek help. Just do not tell every person you meet in the day because they are not trained to deal with it.      
+
+Third, you are not going to loose anything in your career or life by telling your condition. By hiding and not seeking help may not help you either.     
+
+Log these and share with your well-being expert when you can:   
+
+your sleep timings and quality of sleep,   
+
+your food intake, constipation, stomuch upset, injuries, etc.    
+
+daily activities or routine, physical activity, surroundings,   
+
+how are you feeling and why so,     
+
+recent events or anything that bother you in particular, trauma or unpleasant events in the past,    
+
+what makes you feel happy, what turns you off, what triggers your reaction, etc.     
+
 
 ---- 
