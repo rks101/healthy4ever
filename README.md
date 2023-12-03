@@ -103,5 +103,8 @@ Fourth, more often log these in a diary or paper and share with your well-being 
 
 [Lecture notes from Mental Well-being course by Prof. Noam Shpancer](https://drive.google.com/drive/folders/1kZKEVRw--O4XamO5mMPtutcIysscwvy9?usp=sharing)    
 
+Know about and seek professional medical advice on anxiety attack, migrane headaches, recurring mental fatigue, etc. Do not ignore them; these can be sign of other health conditions.     
+
+[Migrane Headaches](https://my.clevelandclinic.org/health/diseases/5005-migraine-headaches)   
 
 ---- 
