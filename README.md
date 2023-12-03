@@ -58,7 +58,7 @@ e.g.
 - music, music, and music in any form.    
 - a type of movie you like, a type of movie you have never seen before. Change is always good.    
 
-Do not count mindless scrolling pages while browsing, binging over videos, spending hours on so-called "social sites", etc.    
+Do not count on mindless scrolling pages while browsing, binging over videos, realities shows selling their filmed stories, or spending hours on so-called "social sites", etc. They may act like heroine /drug; you crave for more after the effect is neutralised or gone!     
 
 ----
 
