@@ -1,6 +1,10 @@
 # healthy4ever
 Stay healthy forever so you can do better.  
 
+* [healthy4ever](#healthy4ever)
+*   [Get up early in the morning](#get-up-early-in-the-morning) 
+
+
 ## Get up early in the morning 
 
 Develop a habit of getting up early; make it a routine or your own universal law, even on Sundays and holidays. It may be 4 am for someone, 5 am or 6 am for others, or something like that. It is important to be regular. You can do many things even before many around you are not yet up and still asleep. Our body gets tired after work or no work during the day; it needs repairs, so sleep early and get up early afresh. One can do more with 7-8 hours of sleep at night and a few breaks in the day, yet we have a majority of 24 hours left.    
