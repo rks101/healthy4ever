@@ -1,8 +1,13 @@
 # healthy4ever
 Stay healthy forever so you can do better.  
 
-* [healthy4ever](#healthy4ever)
-*   [Get up early in the morning](#get-up-early-in-the-morning) 
+*[Get up early in the morning](#get-up-early-in-the-morning) 
+*[Walk or run often](#walk-or-run-often)
+*[Do stretches and exercises](#do-stretches-and-exercises)
+*[Know your body](#know-your-body)
+*[Do something that brings focus](#do-something-that-brings-focus)
+*[Lesser dependency on meds](#lesser-dependency-on-meds)
+*[Mental wellbeing](#mental-wellbeing)
 
 
 ## Get up early in the morning 
@@ -83,17 +88,19 @@ Now, please do not throw away your meds or tell your parents in their 60s/70s/80
 
 ---- 
 
-## Mental well-being   
+## Mental wellbeing   
 
-Mental well-being is important. We do not realize this until we or someone near us goes through this. No one walks to a store, or purchases stress online. Do you? Yet many young individuals experience icebergs hitting their mental-titanic often. May be because of constraints of given time, space, manpower resources, lack of trust in relationships or in others, not addressing route cause often, trying to keep a tight leash on matters with or without control, insecurities, trauma, etc.      
+Mental well-being is important. We may not realize this until we or someone near us has gone through this. No one walks into a store, or purchases stress online. Do you?    
 
-Stress or anxiety can result from our thoughts, habits, how we are dealing with our daily routine, everything that comes our way, and our response to it. It is natural to get "dirt" accumulated over a period of time; we need to clean it just like we do our rooms. Stress can increase with being alone, isolation, or unpleasant commentary, so there is a need to change something in our lives.    
+Yet many individuals experience "anxiety" or "stress" icebergs hitting their mental-titanic often. It may be because of self-talk, over-thinking, constraints of given time, space, and resources, lack of trust in relationships or in people, taking yourself too seriously, trying to keep tight control on matters, compulsions, insecurities, trauma, etc.      
 
-First, it's going to be okay.    
+Stress or anxiety can result from our thoughts, habits, how we are dealing with our daily routine, everything that comes our way, and our response to it. It is natural to get "dirt" accumulated over a period of time; we need to clean it just like we do our rooms. Stress can increase with being alone, isolation, or unpleasant commentary (taking too seriously), so there is a need to change something in our lives.    
+
+First, it's going to be okay. When something good does not last forever, so shall off days.     
 
 Second, seek professional help from Clinical Psychologists and well-being experts to work on your health. Make them your friend! Never hesitate to share or seek help. Just do not tell every person you meet in the day because they are not trained to deal with it.      
 
-Third, you are not going to lose anything in your career or life by telling your condition. Hiding and not seeking help may not help you either. Your own health is more important now than anything you have or do not have.     
+Third, you are not going to lose anything in your career or life by telling your condition. Hiding and not seeking help may not help you either. Your own health is more important now than anything you have or do not have. Your workplace or colleagues can treat you differently, give you a tough time, or hold grudges. Just ignore all this small stuff as you can and forgive them by saying, "I forgive X, Y, Z; they do not know my state". Draw boundaries for someone being firm or harsh, being strong or bully [Dr Kalam in Wings of Fire]. It won't matter soon; take small breaks. Do not make big decisions for some time that can matter. Be grateful for all you have in this life. Visit a hospital emergency-ward/cemetery/Kabristan - they tell us what remains and how beautiful life is. Embrace sunlight and flowers - they do not manipulate us.     
 
 Fourth, more often log these in a diary or paper and share with your well-being expert whenever you can:   
 
@@ -102,14 +109,15 @@ Fourth, more often log these in a diary or paper and share with your well-being 
 - daily activities or routine, physical activity, surroundings,
 - how are you feeling on some days and times and why it is so,
 - recent events or anything that bothers you in particular, trauma or unpleasant events in the past,
-- What makes you feel happy, turns you off, triggers your reaction, etc., and why do you feel so?    
+- What makes you feel happy, turns you off, triggers your reaction, etc., and why do you feel so?
+- log your smoking, drinking, or any kind of drug or sudden changes in the intake.    
 
 [Insight Therapy](https://www.psychologytoday.com/us/blog/insight-therapy)    
 
 [Lecture notes from Mental Well-being course by Prof. Noam Shpancer](https://drive.google.com/drive/folders/1kZKEVRw--O4XamO5mMPtutcIysscwvy9?usp=sharing)    
 
-Know about and seek professional medical advice on anxiety attack, migrane headaches, recurring mental fatigue, etc. Do not ignore them; these can be sign of other health conditions.     
+Know about and seek professional medical advice on anxiety attacks, migraine headaches, recurring mental fatigue, etc. Do not ignore them; these can be signs of other health conditions.    
 
-[Migrane Headaches](https://my.clevelandclinic.org/health/diseases/5005-migraine-headaches)   
+[Migrane Headaches](https://my.clevelandclinic.org/health/diseases/5005-migraine-headaches)    
 
 ---- 
