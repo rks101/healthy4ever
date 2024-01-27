@@ -115,10 +115,11 @@ Fourth, more often log these in a diary or paper and share with your well-being 
 
 [Insight Therapy](https://www.psychologytoday.com/us/blog/insight-therapy)    
 
-[Lecture notes from Mental Well-being course by Prof. Noam Shpancer](https://drive.google.com/drive/folders/1kZKEVRw--O4XamO5mMPtutcIysscwvy9?usp=sharing)    
+<!-- [Lecture notes from Mental Well-being course by Prof. Noam Shpancer](https://drive.google.com/drive/folders/1kZKEVRw--O4XamO5mMPtutcIysscwvy9?usp=sharing)    -->
 
-Know about and seek professional medical advice on anxiety attacks, migraine headaches, recurring mental fatigue, etc. Do not ignore them; these can be signs of other health conditions.    
+Know about and seek professional medical advice on anxiety attacks, anxiety neurosis, migraine headaches, constant mental fatigue, etc. Do not ignore them; these can be signs of other health conditions. While headaches are not fatal, recurring multiple migraine attacks each month/week and prolonged heaviness in one side of the brain may need a Doctor's attention. Do not intellectualize the situation and seek a doctor's advice.     
 
 [Migrane Headaches](https://my.clevelandclinic.org/health/diseases/5005-migraine-headaches)    
+[Anxiety Neurosis](https://www.sciencedirect.com/topics/medicine-and-dentistry/anxiety-neurosis)    
 
 ---- 
