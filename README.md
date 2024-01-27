@@ -1,13 +1,14 @@
 # healthy4ever
 Stay healthy forever so you can do better.  
 
-*[Get up early in the morning](#get-up-early-in-the-morning) 
-*[Walk or run often](#walk-or-run-often)
-*[Do stretches and exercises](#do-stretches-and-exercises)
-*[Know your body](#know-your-body)
-*[Do something that brings focus](#do-something-that-brings-focus)
-*[Lesser dependency on meds](#lesser-dependency-on-meds)
-*[Mental wellbeing](#mental-wellbeing)
+  * [healthy4ever](#healthy4ever)
+    * [Get up early in the morning](#get-up-early-in-the-morning)
+    * [Walk or run often](#walk-or-run-often)
+    * [Do stretches and exercises](#do-stretches-and-exercises)
+    * [Know your body](#know-your-body)
+    * [Do something that brings focus](#do-something-that-brings-focus)
+    * [Lesser dependency on meds](#lesser-dependency-on-meds)
+    * [Mental wellbeing](#mental-wellbeing)
 
 
 ## Get up early in the morning 
