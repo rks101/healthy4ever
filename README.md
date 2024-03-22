@@ -58,11 +58,12 @@ Get up from the seat often and take enough liquid (water/juices/tea) throughout 
 
 ## Do something that brings focus 
 
-It may sound strange, yet it is something that many of us are doing knowingly or in a subconscious state. It is also a way to "let it go". Just do something that brings a focus such that you are doing exactly one thing for an hour; keep your thoughts enlightening you.    
+It may sound strange, yet it is something that many of us are doing knowingly or in a subconscious state. It is also a way to "let it go". Just do something that brings a focus, such as doing exactly one thing for an hour; keep your thoughts enlightening you.    
 
 e.g. 
-- Some sports activities are better, such as outdoor playing, swimming, chess, guitar, etc.    
 - something like a quick break from routine, cooking a meal or part of it, preparing some soup/tea/coffee, etc.   
+- any activity involving your hands and fingers rather than tools or appliances.    
+- some sports activities are better, such as outdoor playing, swimming, chess, guitar, etc.    
 - writing a book, poem, or blog, compiling text/songs already written, etc.   
 - yoga, meditation, exercise, or something closer to that.   
 - music, music, and music in any form.    
