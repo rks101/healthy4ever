@@ -91,33 +91,36 @@ Now, please do not throw away your meds or tell your parents in their 60s/70s/80
 
 ## Mental wellbeing   
 
-Mental well-being is important. We may not realize this until we or someone near us has gone through this. No one walks into a store, or purchases stress online. Do you?    
+Mental well-being is essential. We may not realize this until someone near us has gone through this. No one walks into a store to buy stress or purchases stress online. Do you?    
 
-Yet many individuals experience "anxiety" or "stress" icebergs hitting their mental-titanic often. It may be because of self-talk, over-thinking, constraints of given time, space, and resources, lack of trust in relationships or in people, taking yourself too seriously, trying to keep tight control on matters, compulsions, insecurities, trauma, etc.      
+Yet many individuals experience "anxiety" or "stress" icebergs hitting their mental-titanic often. It may be accompanied by or because of self-talk, over-thinking, constraints of given time, space, and resources, lack of trust in relationships or people, taking yourself too seriously, trying to keep tight control on matters, compulsions, insecurities, trauma, etc.    
 
-Stress or anxiety can result from our thoughts, habits, how we are dealing with our daily routine, everything that comes our way, and our response to it. It is natural to get "dirt" accumulated over a period of time; we need to clean it just like we do our rooms. Stress can increase with being alone, isolation, or unpleasant commentary (taking too seriously), so there is a need to change something in our lives.    
+Stress or anxiety can result from our thoughts, habits, how we deal with our daily routine, everything that comes our way, and our response. It is natural to get "dirt" accumulated over some time; we need to clean it just like we do our rooms. Stress can increase while being alone, in isolation, or with unpleasant commentary (taking too seriously), so we must change something for a different outcome.    
 
-First, it's going to be okay. When something good does not last forever, so shall off days.     
+First, **it's going to be okay**. When something good does not last forever, so shall off days.     
 
-Second, seek professional help from Clinical Psychologists and well-being experts to work on your health. Make them your friend! Never hesitate to share or seek help. Just do not tell every person you meet in the day because they are not trained to deal with it.      
+Second, **seek professional help** from Psychologists and well-being experts to work on your health. Make them your friend! Never hesitate to share or seek help. Do not tell every person you meet in the day because they are not trained to handle it.     
 
-Third, you are not going to lose anything in your career or life by telling your condition. Hiding and not seeking help may not help you either. Your own health is more important now than anything you have or do not have. Your workplace or colleagues can treat you differently, give you a tough time, or hold grudges. Just ignore all this small stuff as you can and forgive them by saying, "I forgive X, Y, Z; they do not know my state". Draw boundaries for someone being firm or harsh, being strong or bully [Dr Kalam in Wings of Fire]. It won't matter soon; take small breaks. Do not make big decisions for some time that can matter. Be grateful for all you have in this life. Visit a hospital emergency-ward/cemetery/Kabristan - they tell us what remains and how beautiful life is. Embrace sunlight and flowers - they do not manipulate us.     
+Third, **you will not lose anything** in your career or life by telling your condition. Hiding and not seeking help may not help you either. Your health is more important now than anything you have or do not have. Your workplace or colleagues can treat you differently, give you a tough time, or hold grudges. Just ignore all this small stuff and forgive them by saying, "I forgive X, Y, Z; they do not know my state". Draw boundaries for someone being firm or harsh to you, being strong or bully [Dr Kalam in Wings of Fire]. It won't matter soon; take small breaks. Take your time with big decisions. Be grateful for all you have in this life. Visit a hospital trauma-ward/emergency-ward/cemetery/Kabristan - they tell us clearly what remains and how beautiful life is. Embrace sunlight and flowers - they do not manipulate us, they do not judge.     
 
-Fourth, more often log these in a diary or paper and share with your well-being expert whenever you can:   
+Fourth, **log often** these in a diary or paper and share with your well-being expert whenever you can:   
 
 - your sleep timings and quality of sleep,
 - your food intake, constipation, stomach upset, injuries, etc.
 - daily activities or routine, physical activity, surroundings,
-- how are you feeling on some days and times and why it is so,
+- how are you feeling on some days and why it is so,
 - recent events or anything that bothers you in particular, trauma or unpleasant events in the past,
 - What makes you feel happy, turns you off, triggers your reaction, etc., and why do you feel so?
-- log your smoking, drinking, or any kind of drug or sudden changes in the intake.    
+- log your smoking, drinking, or any drug or sudden changes in the intake, body-weight changes.
+- log what you forget at times or things you repent from later.
+
+Fifth, **be with real people** than online people, real enemies will also work. Process things a little slowly this year. The behind-the-scenes, lead-generating algorithms embedded in the so-called social apps (TikT, YouT, Insta, Face) are increasingly designed to bring content at the top similar to what viewers have already watched/liked. This may lead you to believe that a) more people are suffering from such things than in reality. A mere 3-4 videos or links influence how you feel about something!  b) what you just saw is the reason or a solution than in reality and c) you may become a carrier of that information without verifying the source or facts often.    
 
 [Insight Therapy](https://www.psychologytoday.com/us/blog/insight-therapy)    
 
 <!-- [Lecture notes from Mental Well-being course by Prof. Noam Shpancer](https://drive.google.com/drive/folders/1kZKEVRw--O4XamO5mMPtutcIysscwvy9?usp=sharing)    -->
 
-Know about and seek professional medical advice on anxiety attacks, anxiety neurosis, migraine headaches, constant mental fatigue, etc. Do not ignore them; these can be signs of other health conditions. While headaches are not fatal, recurring multiple migraine attacks each month/week and prolonged heaviness in one side of the brain may need a Doctor's attention. Do not intellectualize the situation and seek a doctor's advice.     
+Know about and seek professional medical advice on anxiety attacks, anxiety neurosis, migraine headaches, constant mental fatigue, etc. Do not ignore them; these can be signs of other health conditions. While headaches are not fatal, recurring multiple migraine attacks each month/week and prolonged heaviness in one side of the brain may need a Doctor's attention. There may be nothing to worry about pathologically. Do not intellectualize the situation and seek a doctor's advice.     
 
 [Migrane Headaches](https://my.clevelandclinic.org/health/diseases/5005-migraine-headaches)    
 [Anxiety Neurosis](https://www.sciencedirect.com/topics/medicine-and-dentistry/anxiety-neurosis)    
