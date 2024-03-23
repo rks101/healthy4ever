@@ -100,7 +100,7 @@ Stress or anxiety can result from our thoughts, habits, how we deal with our dai
 
 First, **it's going to be okay**. When something good does not last forever, so shall off days.     
 
-Second, **seek professional help** from Psychologists and well-being experts to work on your health. Make them your friend! Never hesitate to share or seek help. Do not tell every person you meet in the day because they are not trained to handle it.     
+Second, **seek professional help** from Psychologists and well-being experts to work on your health. Make them your friend! Never hesitate to share or seek help. Do not tell every person you meet in the day because they are not trained to handle it. Finding/looking yourself in the situation of a victim? Can this do any good?      
 
 Third, **you will not lose anything** in your career or life by telling your condition. Hiding and not seeking help may not help you either. Your health is more important now than anything you have or do not have. Your workplace or colleagues can treat you differently, give you a tough time, or hold grudges. Just ignore all this small stuff and forgive them by saying, "I forgive X, Y, Z; they do not know my state". Draw boundaries for someone being firm or harsh to you, being strong or bully [Dr Kalam in Wings of Fire]. It won't matter soon; take small breaks. Take your time with big decisions. Be grateful for all you have in this life. Visit a hospital trauma-ward/emergency-ward/cemetery/Kabristan - they tell us clearly what remains and how beautiful life is. Embrace sunlight and flowers - they do not manipulate us, they do not judge.     
 
